@@ -17,4 +17,4 @@ Here are some ideas to get you started:
 
 I am a talented Blockchain and HR/Business Administration with experience overseeing successful keystone initiatives from launch to delivery and reaching strategic business objectives through boosting team member engagement. I am passionate about Blockchain and currently transitioning into the industry by leveraging my knowledge on how to design, create and implement Blockchain Architecture.
 
-- 📫 How to reach me: zakariya.jasat@gmail.com, https://www.linkedin.com/in/zakariya-jasat/
+- 📫 How to reach me: zakariya.jasat@gmail.com & https://www.linkedin.com/in/zakariya-jasat/
